@@ -5,7 +5,7 @@
 * E-mail: marg39@yandex.ru
 * GitHub:
 ## About me
-it's a new experirence for me. I have good communication skills, I'm ready to study new subject.
+it's a new experirence for me. My previous jobs were connected with children. I have good communication skills, I'm ready to study new subject.
 ## Education
 University: Saint-Petersburg State University of Culture and Arts, Librarian, bibliographer, teacher.
 ## English
